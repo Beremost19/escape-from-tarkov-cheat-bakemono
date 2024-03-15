@@ -1,6 +1,6 @@
 # escape-from-tarkov-cheat-bakemono
 
-![1](https://github.com/Beremost19/escape-from-tarkov-cheat-bakemono/assets/163592987/6f83efab-48fe-475b-bafd-3fb312e34bca)
+![1](https://github.com/Beremost19/escape-from-tarkov-cheat-bakemono/assets/163592987/0ba69802-a72f-42f6-a5a5-5a953b043a72)
 
 ---
 
